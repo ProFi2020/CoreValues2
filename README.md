@@ -1,2 +1,2 @@
-# CoreValues2
-Core Values 2
+# CoreValues
+Pro Fi 20/20 Core Values
